@@ -1,2 +1,0 @@
-# kushmania
-detroit
